@@ -5,7 +5,7 @@
 - Branding and identity design
 - Advertising + marketing design.
   
-- 👀 I’m also interested in marketing and economics, which I am currently studying at Comenius University in Bratislava.
+- 👀 I’m also interested in marketing and economics, which I am currently studying.
 - 🌱 I’m currently learning basics of programming
   
 - How to reach me:
