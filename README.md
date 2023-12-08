@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AdamMinar
+- 👋 Hi, I’m Adam.
 - 👀 I’m interested in graphics design, which is very versatile field with various niches and specializations. Here are some of them that I’m interested in:
 - Social media graphics.
 - Typography design
